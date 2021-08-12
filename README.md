@@ -5,4 +5,4 @@ Feel free to ask me questions, I'd like to show off how smart I am.
 
 Thank you for informing me the bugs you have found, I did it for my assignment not for myself LOL.
 
-A lot of improments can be done, feel free to use the codes.
+A lot of improvements can be done, feel free to use the codes.
